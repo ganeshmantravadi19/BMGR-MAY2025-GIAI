@@ -1,0 +1,2 @@
+# BMGR-MAY2025-GIAI
+Agentic AI
